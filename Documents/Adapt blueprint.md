@@ -1,0 +1,1 @@
+Adapt blueprint : https://miro.com/welcomeonboard/ZjRMQVB0YlZwZGU5Nmx5Q2VCOVJSc0pKM0FZak1md25OVTBuUmN3WkRiOThTVVhkUmlLRmtTa2VMUGR6OVkxM3wzNDU4NzY0NTcwOTM3OTA4MTUwfDI=?share_link_id=18225446406
